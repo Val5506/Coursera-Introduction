@@ -1,2 +1,4 @@
-# Coursera-Introduction
-The course forum is available for students to connect, share ideas, Certificate, and stay engaged throughout the learning process.
+# Introduction to Computers and Operating Systems and Security
+
+
+ ➡ [CLICK TO JOIN DISCUSSION COMMUNITY FORUM](https://chat.whatsapp.com/FJOFF5rO5ur4AAsS1IQqGl?mode=ac_t)
